@@ -10,3 +10,13 @@
   <br>
   do you like me? write to my ata! I love everyone. (⸝⸝⸝╸w╺⸝⸝⸝)
 </p>
+    <div class="">
+      <p></p>
+      <ul>
+        <li>Love is a deep, multifaceted feeling of affection that combines strong sympathy, passion, emotional intimacy and responsibility.</li>
+        <li>Loving people is a conscious decision and action to accept them as they are, with respect for their uniqueness, freedom and boundaries.</li>
+      </ul>
+    </div>
+<h1 align="center"style=>that's why I love only you! Cutie! </h1>
+⠀⠀⠀˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　　　　 　　 　　　　   　⠀⠀⠀⠀⠀⠀⠀
