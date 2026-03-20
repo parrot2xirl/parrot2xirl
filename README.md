@@ -6,7 +6,7 @@
 
 ---
 <p align="center">
-  <img src="https://img.shields.io/badge/~ ♡ Roblox, Unstable, Omori, Hello Charlotte!, Arg Roblox, Minecraft Arg, CRK, Milgram Fan!-💚-green">
+  <img src="https://img.shields.io/badge/~ ♡ Roblox, Unstable, Omori, Hello Charlotte!, Arg Roblox, Minecraft Arg, CRK, Milgram Fan!-♡-green">
   <br>
-  <img src="https://img.shields.io/badge/do you like me? write to my ata! I love everyone. (⸝⸝⸝╸w╺⸝⸝⸝)-💚-green">
+  do you like me? write to my ata! I love everyone. (⸝⸝⸝╸w╺⸝⸝⸝)
 </p>
