@@ -4,8 +4,9 @@
 
 ![Image](https://github.com/user-attachments/assets/bf229d1f-68a5-42be-8ad5-2290e4e173fe)
 
-<hr>
+---
 <p align="center">
-   ~ ♡ Roblox, Unstable, Omori, Hello Charlotte!, Arg Roblox, Minecraft Arg, KRK, Milgram Fan! <br>
-  do you like me? write to my ata! I love everyone. (⸝⸝⸝╸w╺⸝⸝⸝)
+  <img src="https://img.shields.io/badge/~ ♡ Roblox, Unstable, Omori, Hello Charlotte!, Arg Roblox, Minecraft Arg, CRK, Milgram Fan!-💚-green">
+  <br>
+  <img src="https://img.shields.io/badge/do you like me? write to my ata! I love everyone. (⸝⸝⸝╸w╺⸝⸝⸝)-💚-green">
 </p>
